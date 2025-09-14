@@ -1,2 +1,2 @@
-I'am 1st grade colledge student and I major in ai
+I'am 1st grade college student and I major in ai
 
